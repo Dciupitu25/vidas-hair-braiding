@@ -1,1 +1,1 @@
-# vedas-hair-braiding
+# vidas-hair-braiding
